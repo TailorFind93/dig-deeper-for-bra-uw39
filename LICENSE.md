@@ -1,4 +1,4 @@
-
+Experience dig deeper for brainrots like never before with dig deeper for brainrots Scripts smart, the #1 Script. Includes auto-heal and instant win
 
 
 
